@@ -1,8 +1,8 @@
 ## Identitas
 
-Nama: 
+Nama: DRESTAYUMNA NURMAREKO	
 
-NIM : 
+NIM : 607062400056
 
 ## Instruksi
 
